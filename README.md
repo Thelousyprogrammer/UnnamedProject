@@ -4,6 +4,6 @@
 3. Select any website and double click the HTML file and enjoy!
 (Note: I didn't created any of these files. I've found a copy of these websites since I don't have time to creat one from scratch)
 - - -
-I hope you've really appreciated my gift!
-From your dearest friend,
+I hope you've really appreciated my gift! </br>
+From your dearest friend, </br>
 — Exphysius/Azriel 🚄
